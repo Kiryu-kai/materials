@@ -8,7 +8,9 @@
 
 |概要|素材名|サイト|
 |:--|:--|:--|
-|代紋（透過png）|\-|[Twitter - @buff47213168](https://twitter.com/buff47213168/status/1360166763317526532)<br>[Twitter - @buff47213168](https://twitter.com/buff47213168/status/1359873349627781122)|
+|あさココ商品|\-|[Twitter - @kiryucoco](https://twitter.com/kiryucoco/status/1214204760787570688)|
+|代紋（色差分あり・透過あり）|\-|[Twitter - @buff47213168](https://twitter.com/buff47213168/status/1360166763317526532)<br>[Twitter - @buff47213168](https://twitter.com/buff47213168/status/1359873349627781122)|
+|代紋（判子風・透過あり）|\-|[Twitter - @buff47213168](https://twitter.com/buff47213168/status/1310568035061645312)|
 
 ## BGM
 
