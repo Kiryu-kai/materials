@@ -4,8 +4,8 @@
 
 利用に際しては、[カバー株式会社のガイドライン](https://www.hololive.tv/terms)に準拠してください。
 
-- [画像系](./images/README.md)
-- [音声系](./sounds/README.md)
-- [動画系](./videos/README.md)
+- [画像系](./images/)
+- [音声系](./sounds/)
+- [動画系](./videos/)
 
 ## その他の素材
