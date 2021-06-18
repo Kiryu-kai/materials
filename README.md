@@ -8,7 +8,7 @@
 
 |概要|素材名|サイト|
 |:--|:--|:--|
-|代紋透過png|\-|[Twitter - @buff47213168](https://twitter.com/buff47213168/status/1360166763317526532)<br>[Twitter - @buff47213168](https://twitter.com/buff47213168/status/1359873349627781122)|
+|代紋（透過png）|\-|[Twitter - @buff47213168](https://twitter.com/buff47213168/status/1360166763317526532)<br>[Twitter - @buff47213168](https://twitter.com/buff47213168/status/1359873349627781122)|
 
 ## BGM
 
