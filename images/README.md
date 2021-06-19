@@ -16,7 +16,7 @@
 |名前|Webページ|
 |:--|:--|
 |たつのこプロフィール帳|[Twitter - @nkpn_sub](https://twitter.com/nkpn_sub/status/1395037089599614981)|
-|桐生会半永久的継続契約書 |[Twitter - @same_kiryukaIll](https://twitter.com/same_kiryukaIll/status/1403628837867442184)|
+|桐生会半永久的継続契約書 |[Twitter - @same_kiryukaIll](https://twitter.com/same_kiryukaIll/status/1403628837867442184) JP<br>[Twitter - @same_kiryukaIll](https://twitter.com/same_kiryukaIll/status/1403746332540502017) EN|
 
 
 ### 壁紙
