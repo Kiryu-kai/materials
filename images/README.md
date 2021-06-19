@@ -3,6 +3,7 @@
 |概要|素材名|Webページ|
 |:--|:--|:--|
 |あさココ商品|\-|[Twitter - @kiryucoco](https://twitter.com/kiryucoco/status/1214204760787570688)|
+|あさココテンプレート|\-|[Twitter - @kiryucoco](https://twitter.com/kiryucoco/status/1246839005649330176)|
 |あさコココーラ（白黒・赤・透過あり）|\-|[Twitter - @buff47213168](https://twitter.com/buff47213168/status/1385631206239137794)|
 |桐生会代紋（色差分あり・透過あり）|\-|[Twitter - @buff47213168](https://twitter.com/buff47213168/status/1360166763317526532)<br>[Twitter - @buff47213168](https://twitter.com/buff47213168/status/1359873349627781122)|
 |桐生会代紋（判子風・透過あり）|\-|[Twitter - @buff47213168](https://twitter.com/buff47213168/status/1310568035061645312)|
