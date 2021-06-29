@@ -2,6 +2,8 @@
 
 |概要|素材名|Webページ|
 |:--|:--|:--|
+|グリーンバッグ：会長新衣装（ジャージ）|\-|[Twiiter - @kiryucoco](https://twitter.com/kiryucoco/status/1385639720634306562?s=20)|
+|グリーンバッグ：ガチ恋させる準備ができた会長|\-|[Twitter - @kiryucoco](https://twitter.com/kiryucoco/status/1279571036741070849)|
 |あさココ商品|\-|[Twitter - @kiryucoco](https://twitter.com/kiryucoco/status/1214204760787570688)<br>[Twitter - @kiryucoco](https://twitter.com/kiryucoco/status/1218277670040956928?s=20)|
 |あさココテンプレート|\-|[Twitter - @kiryucoco](https://twitter.com/kiryucoco/status/1246839005649330176)|
 |あさコココーラ（白黒・赤・透過あり）|\-|[Twitter - @buff47213168](https://twitter.com/buff47213168/status/1385631206239137794)|
