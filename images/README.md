@@ -29,3 +29,13 @@
 |代紋と会長|1920x1080 16:9|[Twitter - @buff47213168](https://twitter.com/buff47213168/status/1386920763949674500)|
 |代紋と会長|1920x1080 16:9|[Twitter - @buff47213168](https://twitter.com/buff47213168/status/1362030260217278470)|
 |代紋と会長|1枚目　1920ｘ1080(16：9)PC用<br>2枚目　3840ｘ2160(16：9)PC用4K<br>3枚目　1500ｘ500(3：1)Twitterヘッダー用<br>4枚目　1080ｘ1920(9：16)スマホ用|[Twitter - @buff47213168](https://twitter.com/buff47213168/status/1362028413603647493)|
+
+### その他
+
+|名前|Webページ|
+|:--|:--|
+|桐生ココ グラフィグ1|[Twitter - @DarknessOrange](https://twitter.com/DarknessOrange/status/1406587872308699140)|
+|桐生ココ グラフィグ2|[Twitter - @DarknessOrange](https://twitter.com/DarknessOrange/status/1409214598129938432)|
+|桐生ココ グラフィグ3|[Twitter - @DarknessOrange](https://twitter.com/DarknessOrange/status/1410594584808226820)|
+|桐生ココ グラフィグ4|[Twitter - @DarknessOrange](https://twitter.com/DarknessOrange/status/1457389904921460741)|
+
